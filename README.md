@@ -1,4 +1,4 @@
-[![image](https://r.resimlink.com/P91Nb8IeJwL.png)](https://resimlink.com/P91Nb8IeJwL)
+[![image](https://r.resimlink.com/zP8FdwMy.png)](https://resimlink.com/zP8FdwMy)
 
 <h1 align="center">Hi 👋, I'm Furkan Türker</h1>
 <h3 align="center">COMPUTER PROGRAMMING FIRST YEAR STUDENT</h3>
